@@ -1,6 +1,6 @@
 ## 💥Contributors :
 
-   * Dattajagan , github: Dattajagan
+   * Vaishnavi , github: Vaishu2916
 
    
  
